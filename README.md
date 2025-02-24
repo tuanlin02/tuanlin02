@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Silicon Valley
 - 📫 How to reach me how to treat me i treat you as well
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: we may a friends
 
 <!---
 tuanlin02/tuanlin02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
